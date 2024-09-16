@@ -23,9 +23,9 @@ The word democracy, meaning people in power, is a system that enables free peopl
 
 In modern society the word democracy is used– or misused –to describe totalitarian regimes that control most aspects of the individual life while the people vote for parties that adhere to totalitarian rule. Fear propaganda is used to convince the public that the nation is democratic. There is an inverse relationship between the frequency of use of the word democracy, and the lack thereof. The more the proponents of totalitarianism use the word, the higher the lack of individual autonomy and rule.
 
-The psychologically basis is that people tend to talk alot about the things that are missing in life, in an effort to decieve oneself and others that the opposite of what is the case is the truth.
+The psychological basis is that people tend to talk alot about the things that are missing in life in an effort to decieve oneself and others that the opposite of what is the case is the truth. If something is working well, there is no need to mention it.
 
-The same principle hold for nations that talk about the independece of legal system, being a humanitarian power, freedom and borders. The more these matters are talked about, the more the evidence of the lack thereof. 
+The same principle hold true for nations that talk about the independece of legal system, being a humanitarian power, freedom and borders. The more these matters are talked about, the more the evidence of the lack thereof. 
 
 
 
