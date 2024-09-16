@@ -12,7 +12,7 @@ The Recursive Republic (**TRR**) is a advancement of Platos Republic designed fo
 ### The Church
 The Church is the community of people involved in the sacred expression of life. The Church has no authority, meaning there are no individuals in power that act as arbitrators of a higher purpose. Each individual is regarded as the ultimate arbitrator of their divine purpose.
 
-This is in opposition the modern meaning of the word Church, where the church is a political organization pretending to arbitrate the will and word of God. 
+This is in opposition to the modern meaning of the word Church, where the church is a political organization pretending to arbitrate the will and corrupted word of God, while the sacred expression of life is defiled. Injunctions are placed upon followers to control their narrative. Meaningless religious rituals replace their true origins. It makes spiritual life into an absurd theater to further those in positions of power. 
 
 ### The State
 The state is a nation or territory considered as an organized political community under one government. The role of the state is to enable efficient expression of free life.
