@@ -19,7 +19,7 @@ The state is a nation or territory considered as an organized political communit
 
 ## Appendix
 
-### Bureaucratic explosion
+### Bureaucratic Explosion
 
 The term bureaucratic explosion refers to the phenomenon of a growing bureaucracy where more and more resources are used to feed the system rather than free human life. Bureaucratic explosion is destined to fail since the people daily engage in meaningless tasks that are called work. The myth of Sisyphus is a symbolic story that exemplifies this phenomenon. A man rolls a large rock up a hill only to see it roll down and begin again. In modern society a great deal of the daily work of people involves doing meaningless jobs that lack purpose. The theory of economics that analyse society makes axioms out of false beliefs (money, i.e. credit swap systems) which makes meaningless jobs look like productive life.
 
@@ -29,7 +29,7 @@ This is ultimately an effect of power consolidation to a small group of people w
 
 Money, or credit swap systems, stand at the root of this phenomenon. J.J.R. Tolkien, the author of the world famous novel "The Lord of The Rings" is a symbolic narrative of the effects of credit swap systems, bureaucratic explosion, and the violence that ensues when people oppose it. It is the story of good vs evil, light against darkness, life vs death, told using a mythological fantasy where the living try to destroy the credit swap system (the ring) while death desperately tries to regain control.
 
-### The illusion of the Democracy
+### The Illusion of The Democracy
 
 The word democracy, meaning people in power, is a system that enables free people to rule their nation or state by means of voting for public officials and joint matters. Democracy is believed to originate from ancient Greece but the fundamental principle of it has unknown origins.
 
