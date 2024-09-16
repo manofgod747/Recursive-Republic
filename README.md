@@ -17,8 +17,10 @@ This is in opposition to the modern meaning of the word Church, where the church
 ### The State
 The state is a nation or territory considered as an organized political community under one government. The role of the state is to enable efficient expression of free life.
 
-### Separation
-The separation of Church and State is the notion that the state is not intended to interfere with the expression of free life. The purpose of the state is to provide a system for the effective rule of and working of complex societies while individual lifes are regarded as sacred and absolutely free. It is not desirable to interfere in the lifes of free human beings, or the word free cannot be used. The state requires some level of dutiful participation from citizens, without which a state cannot exist. To each man according to his needs, from each man according to his capacity. 
+### The Separation Thereof
+The separation of Church and State is the notion that the state is not intended to interfere with the expression of free life. The purpose of the state is to provide a system for the effective rule of and working of complex societies while individual lifes are regarded as sacred and absolutely free. It is not desirable to interfere in the lifes of free human beings, or the word free taken in vain. The state requires some level of dutiful participation from citizens, without which a state cannot exist. 
+
+To each man according to his needs, from each man according to his capacity. 
 
 ## Appendix
 
