@@ -34,7 +34,7 @@ To each man according to his needs, from each man according to his capacity.
 
 ### Bureaucratic Explosion
 
-The term bureaucratic explosion refers to the phenomenon of a growing bureaucracy where more and more resources are used to feed the system rather than free human life. Bureaucratic explosion is destined to fail since the people daily engage in meaningless tasks that do nothing to support human life. 
+The term bureaucratic explosion refers to the phenomenon of a growing bureaucracy where more and more resources are used to uphold the system rather than free human life. Bureaucratic explosion is destined to fail since the people daily engage in meaningless tasks that do nothing to support human life. Instead the bureacracy works to ensure the ongoing illusory needs of the bureacracy.
 
 The myth of Sisyphus is a symbolic story that exemplifies this phenomenon. A man rolls a large rock up a hill only to see it roll down again too begin anew. A fools quest. A great deal of the daily work of people in modern society involves doing jobs that lack purpose. Modern theories of economics that analyze resource distribution makes axioms out of false beliefs (money, i.e. credit swap systems), which makes meaningless jobs look like productive life.
 
