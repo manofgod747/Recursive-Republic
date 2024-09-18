@@ -54,7 +54,7 @@ The psychological basis is that people tend to talk about the things that are la
 
 The same principle holds true for nations that talk about the independece of legal systems, humanitarian superpowers, freedom, and borders. The more these matters are mentioned, the more the evidence of the lack thereof. 
 
-Individuals fail to see the real driving force behind these phenomenon due to mass media propaganda and the illusion that systems can be stable. When the curtain falls, the reality becomes painfully evident. The emergence of public mass media, the internet, combats these effort. For this reason the internet is under government siege where unconvinient truths are censcored from the public eye. The public partly knows, but lacks the will, conviction, and power to do anything about the problem.
+Individuals fail to see the real driving force behind these phenomenon due to trauma, mass media propaganda, and the illusion that systems can be stable. When the curtain falls, the reality becomes painfully evident. The emergence of public mass media, the internet, combats these effort. For this reason the internet is under government siege where unconvinient truths are censcored from the public eye. The public partly knows, but lacks the will, conviction, and power to do anything about the problem.
 
 
 
