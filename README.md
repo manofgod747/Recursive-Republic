@@ -42,7 +42,7 @@ The bureaucracy streches farther than government jobs. Private companies work un
 
 This is ultimately an effect of power consolidation to a small group of people who are resistant to share power and motivate it by deluding themselves that their wealth of power is earned because of arbitrary rules of ownership and credit swap systems. For example, the owners of publicly traded companies recieve dividents indefinetly and are in control of capital that they did nothing to earn other than power mongering. 
 
-Credit swap systems (aka money), stand at the root of this phenomenon. J.J.R. Tolkien, the author of the world renowned novel "The Lord of The Rings" is the symbolic narrative of the effects of credit swap systems, bureaucratic explosion, and the violence that ensues when people oppose it. It is the story of good vs evil, light against darkness, life vs death, told using a mythological fantasy where the living try to destroy the credit swap system (the ring) while the dead desperately tries to regain control.
+Credit swap systems (aka money), stand at the root of this phenomenon. J.J.R. Tolkien, the author of the world renowned novel "The Lord of The Rings" is the symbolic narrative of the effects of credit swap systems, bureaucratic explosion, and the violence that ensues when people oppose it. It is the story of good vs evil, light against darkness, life vs death, told using a mythological fantasy where the living try to destroy the credit swap system (the ring) while the dead desperately tries to regain control by persecution and violence.
 
 ### The Illusion of The Democracy
 
@@ -50,7 +50,7 @@ The word democracy, meaning people rule (greek: demos, kratos), is a system that
 
 In modern society the word democracy is used– or misused –to describe totalitarian regimes that control most aspects of the individual life while the people vote for parties that adhere to totalitarian rule. The totalitarian rulers appoint judges, jurys and executioners without the involvement of the people. Propaganda is used to convince the public that the nation is democratic. There is an inverse relationship between the frequency of the use of the word democracy, and the lack thereof. The more the proponents of totalitarianism use the word, the higher the lack of individual autonomy and rule.
 
-The psychological basis is that people tend to talk about the things that are lacking in life in an effort to decieve oneself and others that the opposite of what is the case is the truth. In reality, if something is working well, there is no need to mention it.
+The psychological basis is that people tend to talk about the things that are lacking in life in an effort to decieve oneself and others that the opposite of what is the case is the truth (aka denial). In reality, if something is working well, there is no need to mention it.
 
 The same principle holds true for nations that talk about the independece of legal systems, humanitarian superpowers, freedom, and borders. The more these matters are mentioned, the more the evidence of the lack thereof. 
 
