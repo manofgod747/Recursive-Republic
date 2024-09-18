@@ -44,7 +44,7 @@ In modern society the word democracy is used– or misused –to describe totali
 
 The psychological basis is that people tend to talk about the things that are lacking in life in an effort to decieve oneself and others that the opposite of what is the case is the truth. In reality, if something is working well, there is no need to mention it.
 
-The same principle hold true for nations that talk about the independece of legal system, humanitarian superpowers, freedom, and borders. The more these matters are mentioned, the more the evidence of the lack thereof. 
+The same principle holds true for nations that talk about the independece of legal systems, humanitarian superpowers, freedom, and borders. The more these matters are mentioned, the more the evidence of the lack thereof. 
 
 Individuals fail to see the real driving force behind these phenomenon due to mass media propaganda and the illusion that systems can be stable. When the curtain falls, the reality becomes painfully evident. The emergence of public mass media, the internet, combats these effort. For this reason the internet is under government siege where unconvinient truths are censcored from the public eye. The public partly knows, but lacks the will, conviction, and power to do anything about the problem.
 
