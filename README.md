@@ -46,7 +46,7 @@ Credit swap systems (aka money), stand at the root of this phenomenon. J.J.R. To
 
 ### The Illusion of The Democracy
 
-The word democracy, meaning people in power, is a system that enables free people to rule their nation or state by means of voting for public officials and joint matters. Democracy is believed to originate from ancient Greece but the fundamental principle of it has unknown origins.
+The word democracy, meaning people rule (greek: demos, kratos), is a system that enables free people to rule their nation or state by means of voting for public officials and joint matters. Democracy is believed to originate from ancient Greece but the fundamental principle of it has unknown origins.
 
 In modern society the word democracy is used– or misused –to describe totalitarian regimes that control most aspects of the individual life while the people vote for parties that adhere to totalitarian rule. Fear propaganda is used to convince the public that the nation is democratic. There is an inverse relationship between the frequency of the use of the word democracy, and the lack thereof. The more the proponents of totalitarianism use the word, the higher the lack of individual autonomy and rule.
 
