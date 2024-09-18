@@ -48,7 +48,7 @@ Credit swap systems (aka money), stand at the root of this phenomenon. J.J.R. To
 
 The word democracy, meaning people rule (greek: demos, kratos), is a system that enables free people to rule their nation or state by means of voting for public officials and joint matters. Democracy is believed to originate from ancient Greece but the fundamental principle of it has natural origins.
 
-In modern society the word democracy is used– or misused –to describe totalitarian regimes that control most aspects of the individual life while the people vote for parties that adhere to totalitarian rule. Fear propaganda is used to convince the public that the nation is democratic. There is an inverse relationship between the frequency of the use of the word democracy, and the lack thereof. The more the proponents of totalitarianism use the word, the higher the lack of individual autonomy and rule.
+In modern society the word democracy is used– or misused –to describe totalitarian regimes that control most aspects of the individual life while the people vote for parties that adhere to totalitarian rule. The totalitarian rulers appoint judges, jurys and executioners without the involvement of the people. Propaganda is used to convince the public that the nation is democratic. There is an inverse relationship between the frequency of the use of the word democracy, and the lack thereof. The more the proponents of totalitarianism use the word, the higher the lack of individual autonomy and rule.
 
 The psychological basis is that people tend to talk about the things that are lacking in life in an effort to decieve oneself and others that the opposite of what is the case is the truth. In reality, if something is working well, there is no need to mention it.
 
