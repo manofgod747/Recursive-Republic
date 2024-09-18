@@ -34,7 +34,7 @@ The bureaucracy streches farther than government jobs. Private companies work un
 
 This is ultimately an effect of power consolidation to a small group of people who are resistant to share power and motivate it by deluding themselves that their wealth of power is earned because of arbitrary rules of ownership and credit swap systems. For example, the owners of publicly traded companies recieve dividents indefinetly and are in control of capital that they did nothing to earn other than power mongering. 
 
-Credit swap systems (aka money), stand at the root of this phenomenon. J.J.R. Tolkien, the author of the world renowned novel "The Lord of The Rings" is the symbolic narrative of the effects of credit swap systems, bureaucratic explosion, and the violence that ensues when people oppose it. It is the story of good vs evil, light against darkness, life vs death, told using a mythological fantasy where the living try to destroy the credit swap system (the ring) while death desperately tries to regain control.
+Credit swap systems (aka money), stand at the root of this phenomenon. J.J.R. Tolkien, the author of the world renowned novel "The Lord of The Rings" is the symbolic narrative of the effects of credit swap systems, bureaucratic explosion, and the violence that ensues when people oppose it. It is the story of good vs evil, light against darkness, life vs death, told using a mythological fantasy where the living try to destroy the credit swap system (the ring) while the dead desperately tries to regain control.
 
 ### The Illusion of The Democracy
 
