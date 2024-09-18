@@ -15,7 +15,7 @@ The Church is the community of people involved in the sacred expression of life.
 This is in opposition to the modern meaning of the word Church, where the church is a political organization pretending to arbitrate the will and word of God, while the sacred expression of life is defiled. Injunctions are placed upon followers to control their narrative. Meaningless religious rituals replace their true origins. It makes spiritual life into an absurd theater to further those in positions of power. 
 
 ### The State
-The state is a nation or territory considered as an organized political community under one government. The role of the state is to enable efficient expression of free life.
+The state is a nation or territory considered as an organized political community under one government. The role of the state is to enable and protect the expression of free life.
 
 ### The Separation Thereof
 The separation of Church and State is the notion that the state is not intended to interfere with the expression of free life. The purpose of the state is to provide a system for the effective rule and working of complex societies while individual lifes are regarded as sacred and absolutely free. It is not desirable to interfere in the lifes of free human beings, or the word free taken in vain. The state requires some level of dutiful participation from citizens, without which a state cannot exist. 
