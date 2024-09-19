@@ -5,7 +5,7 @@ The Recursive Republic (abbreviation **TRR**) is an advancement of Platos Republ
 
 ## The Principles of The Recursive Republic
 
-1. [The separation of Church and State](#The-Separation-of-Church-and-State)
+1. [The Separation of Church and State](#The-Separation-of-Church-and-State)
 2. [Consolidation of Power](#Consolidation-of-Power)
 3. [Auto-emergent Systems](#Auto-emergent-Systems)
 
