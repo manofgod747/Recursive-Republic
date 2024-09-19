@@ -24,6 +24,16 @@ The separation of Church and State is the notion that the state is not intended 
 
 To each man according to his needs, from each man according to his capacity. 
 
+### Political Representation
+The role of political representatives is to speak and act on behalf of the people in foreign matters.
+
+### Arbitrators of Law
+The arbitrators of law are people who are elected to judge in conflicts between individuals and groups of individuals. Judges investigate the factual circumstances of a case and negotiate an agreement between the parties or deliver a verdict. 
+
+### Police
+The role of police is to uphold social order in society.
+
+
 ## Consolidation of Power
 ...
 
