@@ -33,6 +33,8 @@ The separation of Church and State is the notion that the state is not intended 
 
 Separation is necessary between political representatives, arbitrators of law, and police. Each require their own democratic process. One class does not rule over another. They must be democratically and functionally independent. Democratic independence means the people vote for officials of each class. Functional independence means the organization and financing is independent between the classes. 
 
+If this is not the case, it is not a democracy.
+
 ## Consolidation of Power
 Consolidation of power means to gather the power of individuals into a whole that is more powerful than the individuals working alone. Consolidation of power does not mean to place unproportional amounts of power into the hands of few while individual power suffers. Ideally, every individual is as powerful and autonomous as their own capacity while the whole is more powerful than the sum of the individuals. 
 
