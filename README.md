@@ -36,7 +36,7 @@ Separation is necessary between political representatives, arbitrators of law, a
 ## Consolidation of Power
 Consolidation of power means to gather the power of individuals into a whole that is more powerful than the individuals working alone. Consolidation of power does not mean to place unproportional amounts of power into the hands of few while individual power suffers. Ideally, every individual is as powerful and autonomous as their own capacity while the whole is more powerful than the sum of the individuals. 
 
-If individual autonomy is lacking, the whole is weakened because the weak become a liability. If some individuals have unproportionally higher autonomy than others the whole is weakened for the same reason. 
+If individual autonomy is lacking, the whole is weakened because the weak become a liability. If some individuals have unproportionally higher autonomy than others the whole is weakened for the same reason.
 
 When power is consolidated it is important to design a system that maximizes individual autonomy in order to boost morale. Individuals who participate freely and willingly are more likely to succeed in their endeavors. 
 
@@ -47,11 +47,11 @@ For a system to be trustworthy, individuals must have the choice on who is their
 
 Individuals can also choose to represent themselves. To act on their on behalf in any and all matters. 
 
-The fundamental principle of TRR, recursiveness, is to enable detailed individual choice that propagates to the whole without the individual having to consider and know all aspects of complex society. The individual has the choice to vote in all and any aspect of governance, or to delegate his choice to a trusted party.
+The fundamental principle of TRR, recursiveness, is to enable detailed individual choice that propagates to the whole without the individual having to consider and know all aspects of complex society. The individual has the choice to vote in all and any aspect of governance, or to delegate his voice to a trusted party.
 
-The ones who choose to not delegate are automatically candidates for leadership. They are selected leaders by the ones who delegate their voting power to them. The ones with most delegates are the selected leaders.
+The ones who choose not too delegate are candidates for leadership. They are selected leaders by the ones who delegate their voting power to them. The ones with most delegates are the selected leaders.
 
-The process of voting can range from instantly and continuously to periodically. The method depends on the tools available. If modern tools like electronic devices and networks are available, voting can be instant and continous. Matters of leadership and decisions can be settled swiftly in a fast paced environment. 
+The process of voting can range from instantly and continuously to periodically. The method depends on the tools available. If modern tools like electronic devices and networks are available, voting can be instant and continuous. Matters of leadership and decisions can be settled swiftly in a fast paced environment. 
 
 Compared to current political processes that are slow moving, lack insight and transparency, TRR offers a system that outperforms the Republic by a large order of magnitude. The Republic was never intended for the globalized electro-mechanical age.
 
