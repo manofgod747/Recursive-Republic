@@ -51,9 +51,12 @@ The fundamental principle of TRR, recursiveness, is to enable detailed individua
 
 The ones who choose to not delegate are automatically candidates for leadership. They are selected leaders by the ones who delegate their voting power to them. The ones with most delegates are the selected leaders.
 
-The voting process of voting can range from instantly and contiously to periodically. The method depends on the tools available. If modern tools like electornics and networks are available, voting can be instant and continous. Matters of leadership and decisions can be settled swiftly in a fast paced environment. 
+The process of voting can range from instantly and continuously to periodically. The method depends on the tools available. If modern tools like electronic devices and networks are available, voting can be instant and continous. Matters of leadership and decisions can be settled swiftly in a fast paced environment. 
 
 Compared to current political processes that are slow moving, lack insight and transparency, TRR offers a system that outperforms the Republic by a large order of magnitude. The Republic was never intended for the globalized electro-mechanical age.
+
+### Groups...
+### Geographical matters...
 
 ### Leader Election
 The criteria for legitimate leadership: 
