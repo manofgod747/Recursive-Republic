@@ -19,11 +19,6 @@ This is in opposition to the modern meaning of the word Church, where the church
 ### The State
 The state is a nation or territory considered as an organized political community under one government. The role of the state is to enable and protect the expression of free life.
 
-### The Role of Separation
-The separation of Church and State is the notion that the state is not intended to interfere with the expression of free life. The purpose of the state is to provide a system for the effective rule and working of complex human societies while individual lifes are regarded as sacred and absolutely free. It is not desirable to interfere in the lifes of free human beings, or the word free is taken in vain. The state requires some level of dutiful participation from citizens, without which a state cannot exist. Dutiful participation is only possible when the people are in agreement with the function of the state.
-
-To each man according to his needs, from each man according to his capacity. 
-
 ### Political Representation
 The role of political representatives is to speak and act on behalf of the people in foreign matters.
 
@@ -33,6 +28,10 @@ The arbitrators of law are people who are elected to judge in conflicts between 
 ### Police
 The role of police is to uphold social order in society.
 
+### The Role of Separation
+The separation of Church and State is the notion that the state is not intended to interfere with the expression of free life. The purpose of the state is to provide a system for the effective rule and working of complex human societies while individual lifes are regarded as sacred and absolutely free. It is not desirable to interfere in the lifes of free human beings, or the word free is taken in vain. The state requires some level of dutiful participation from citizens, without which a state cannot exist. Dutiful participation is only possible when the people are in agreement with the function of the state.
+
+Separation is necessary between political representatives, arbitrators of law, and police. Each require their own democratic process. One class does not rule over another. They must be democratically and functionally independent. Democratic independence means the people vote for officials of each class. Functional independence means the organization and financing is independent between the classes. 
 
 ## Consolidation of Power
 ...
