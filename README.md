@@ -40,7 +40,7 @@ Consolidation of power means to gather the power of individuals into a whole tha
 
 If individual autonomy is lacking, the whole is weakened because the weak become a liability. If some individuals have unproportionally higher autonomy than others the whole is weakened for the same reason.
 
-When power is consolidated it is important to design a system that maximizes individual autonomy in order to boost morale. Individuals who participate freely and willingly are more likely to succeed in their endeavors. 
+Too consolidate power it is important to design a system that maximizes individual autonomy in order to boost morale. Individuals who participate freely and willingly are more likely to succeed in their endeavors and contribute to a powerful whole.
 
 ## Auto-emergent Systems
 An auto emergent system is a system that has no initial design, except a process that brings forth an ever changing structure. This process is based on individual choice. 
