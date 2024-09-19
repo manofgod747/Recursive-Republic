@@ -34,10 +34,35 @@ The separation of Church and State is the notion that the state is not intended 
 Separation is necessary between political representatives, arbitrators of law, and police. Each require their own democratic process. One class does not rule over another. They must be democratically and functionally independent. Democratic independence means the people vote for officials of each class. Functional independence means the organization and financing is independent between the classes. 
 
 ## Consolidation of Power
-...
+Consolidation of power means to gather the power of individuals into a whole that is more powerful than the individuals working alone. Consolidation of power does not mean to place unproportional amounts of power into the hands of few while individual power suffers. Ideally, every individual is as powerful and autonomous as their own capacity while the whole is more powerful than the sum of the individuals. 
+
+If individual autonomy is lacking, the whole is weakened because the weak become a liability. If some individuals have unproportionally higher autonomy than others the whole is weakened for the same reason. 
+
+When power is consolidated it is important to design a system that maximizes individual autonomy in order to boost morale. Individuals who participate freely and willingly are more likely to succeed in their endeavors. 
 
 ## Auto-emergent Systems
-...
+An auto emergent system is a system that has no initial design, except a process that brings forth an ever changing structure. This process is based on individual choice. 
+
+For a system to be trustworthy, individuals must have the choice on who is their representative in different matters. Be it politicians, arbitrators of law, police or something else. Some representative positions are foreseen and some might be unforseen. 
+
+Individuals can also choose to represent themselves. To act on their on behalf in any and all matters. 
+
+The fundamental principle of TRR, recursiveness, is to enable detailed individual choice that propagates to the whole without the individual having to consider and know all aspects of complex society. The individual has the choice to vote in all and any aspect of governance, or to delegate his choice to a trusted party.
+
+The ones who choose to not delegate are automatically candidates for leadership. They are selected leaders by the ones who delegate their voting power to them. The ones with most delegates are the selected leaders.
+
+The voting process of voting can range from instantly and contiously to periodically. The method depends on the tools available. If modern tools like electornics and networks are available, voting can be instant and continous. Matters of leadership and decisions can be settled swiftly in a fast paced environment. 
+
+Compared to current political processes that are slow moving, lack insight and transparency, TRR offers a system that outperforms the Republic by a large order of magnitude. The Republic was never intended for the globalized electro-mechanical age.
+
+### Leader Election
+The criteria for legitimate leadership: 
+* He is chosen by the people
+* He has the will and capacity to lead
+* His leadship is selfless and dutiful
+* He is the one who strives for the highest moral and philosophical virtue
+
+These qualities can never be guaranteed since it is possible to decieve people that one is virtuos while the opposite is the case. A leader will be a mirror of the people, meaning people get the leaders they deserve. Good leadership requires good people.
 
 ## Appendix
 
