@@ -1,7 +1,7 @@
 ### Sason
 # The Recursive Republic
 
-The Recursive Republic (abbreviation **TRR**) is an advancement of Platos Republic designed for efficient governance of modern large scale civilisations. It is a means to combat bureaucratic explosion(###Bureaucratic Explosion) and the illusion of the democracy.
+The Recursive Republic (abbreviation **TRR**) is an advancement of Platos Republic designed for efficient governance of modern large scale civilisations. It is a means to combat bureaucratic explosion(#Bureaucratic-Explosion) and the illusion of the democracy.
 
 ## The Principles of The Recursive Republic
 
